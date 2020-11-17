@@ -1,0 +1,1 @@
+Refined flour - 2 cup, Caster sugar - 1.5 cup, coco powder - 1 cup, coffee - 1 tbsp, egg - 3, refined oil - 1.5 cup, vanilla essence - 2 tbsp, baking powder - 1 tbsp, baking soda - half tbsp, salt - 1 pinch, milk - as per requirenment

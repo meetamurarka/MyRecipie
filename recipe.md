@@ -1,0 +1,1 @@
+In a bowl add flour, coco powder, baking soda, baking powder and seive all of them twice. Now in another bowl add eggs  and whisk now gradually add sugar after being forthy add oil and mix 2 min and finally add vanilla essence. Now gradually hour the dry mix and mox constantly
